@@ -12,4 +12,4 @@ one-time purchase:
 
 **Get ProbeLab ($39 one-time):** https://vittoriali.gumroad.com/l/probelab
 
-by vittoriali
+by Haku
